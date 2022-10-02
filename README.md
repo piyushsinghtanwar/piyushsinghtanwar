@@ -1,5 +1,5 @@
 ### Hi there 👋 
-Just breaking sonething really badddd!
+Just breaking something really badddd!
 
 
 ![image](https://user-images.githubusercontent.com/113516337/193469333-fadccf2e-436e-4cca-be12-5a98be90716a.png)
